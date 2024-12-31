@@ -78,3 +78,4 @@ Blox Fruits offers an exciting and dynamic gameplay experience, but for many pla
 
 While scripts can provide significant benefits, it’s essential to use them responsibly, considering the potential risks such as account bans, security threats, and the impact on fair play. By selecting trustworthy scripts, following best practices, and playing with moderation, you can enjoy a more streamlined and enjoyable experience in Blox Fruits.
 
+Looking to level up your Blox Fruits experience? Check out https://blxfruitscript.com/ for the best scripts to boost your gameplay!
